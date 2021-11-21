@@ -5,3 +5,5 @@ iitititit
 iititititii
 
 chiyokoだよ
+
+yoshiだよ
